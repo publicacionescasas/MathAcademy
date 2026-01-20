@@ -1,0 +1,2 @@
+# MathAcademy
+Política de Privacidad
